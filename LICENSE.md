@@ -1,4 +1,4 @@
-#  
+#  scary shawarma kiosk Script no-ban offers the most advanced scary shawarma kiosk Script, with private server access and custom skins. Perfect for
 
 
 
